@@ -1,6 +1,6 @@
 # Hi, I'm Vrendi Mariudin 👋
 
-## Mechanical Design Engineer & Drafter
+## Mechanical Design Engineer 
 
 **SolidWorks | AutoCAD | SPM | Jig & Fixture | Manufacturing Drawing | DFMA**
 
